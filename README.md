@@ -1,7 +1,7 @@
 ## Olá👋
 
 - Hoje estou trabalhando com Contabilidade na área Fiscal
-- Dando iníco ao curso de Análise de Desnevolvimento de Sistemas
+- Dando iníco ao curso de Análise e Desnevolvimento de Sistemas
 - Buscando melhorias diárias ✴️
 - Ces't la vie 💖
 
